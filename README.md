@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **mohammadamanlou2@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1dL-qwf_-BY7-9sVapYz5_WFgv7G3ReWO/view?usp=drive_link](https://drive.google.com/file/d/1dL-qwf_-BY7-9sVapYz5_WFgv7G3ReWO/view?usp=drive_link)
+- 📄 Know about my experiences [RESUME](https://drive.google.com/file/d/1dL-qwf_-BY7-9sVapYz5_WFgv7G3ReWO/view?usp=drive_link)
 
 - ⚡ Fun fact **Around 2.5 quintillion bytes worth of data is generated each day.**
 
