@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **Reinforcement learning from coursera**
 
-- 📝 I regularly write articles on [https://t.me/Marghoomeh](https://t.me/Marghoomeh)
+- 📝 I regularly write articles on [MARGHOOMEH](https://t.me/Marghoomeh)
 
 - 💬 Ask me about **Machine learning**
 
